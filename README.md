@@ -1,1 +1,1 @@
-![de:hub.de-Projekt](de_hub.jpg)
+![black cat on a fish tank](/PXL_20241211_011204612.MP.jpg)
